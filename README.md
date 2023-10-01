@@ -1,1 +1,1 @@
-![image](https://github.com/DeadWish56/Postman/assets/96474689/f84cab98-7132-4995-952b-025cc3bfff40)
+![image](https://github.com/DeadWish56/Postman/assets/96474689/e410a96e-141b-4285-a498-a786a5201ed3)
